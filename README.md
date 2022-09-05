@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Sagar018
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Web development
+- 💞️ I’m currently not looking for collaboration, sorry.
+- 📫 You can reach me through
+- Instagram = _sagarr18_
+- twitter = _sagarr18_
+- I am from India and live in Delhi(capital of India).
